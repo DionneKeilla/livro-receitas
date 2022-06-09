@@ -21,19 +21,19 @@
     
       
 
-Em uma bacia, adicione a tapioca, o sal e misture bem. Coloque o leite e misture novamente.
+**1.** Em uma bacia, adicione a tapioca, o sal e misture bem. Coloque o leite e misture novamente.
 
-**1.** Cubra com um pano de prato e deixe descansar por 2 horas para os grãos ficarem bem hidratados.
+**2.** Cubra com um pano de prato e deixe descansar por 2 horas para os grãos ficarem bem hidratados.
 
-**2.** Após esse tempo, pré-aqueça o forno a 200 graus por 20 minutos.
+**3.** Após esse tempo, pré-aqueça o forno a 200 graus por 20 minutos.
 
-**3.** Junte a manteiga, os ovos e o queijo ralado à massa de tapioca. Sove a massa com as mãos até o ponto de modelar.
+**4.** Junte a manteiga, os ovos e o queijo ralado à massa de tapioca. Sove a massa com as mãos até o ponto de modelar.
 
-**5. **Divida a massa em 12 bolinhas e dê a forma que desejar. A nossa é em forma de pãozinho
+**5.** Divida a massa em 12 bolinhas e dê a forma que desejar. A nossa é em forma de pãozinho
 
-**6. ** Forre o tabuleiro com papel antiaderente e acomode os pãezinhos.
+**6.** Forre o tabuleiro com papel antiaderente e acomode os pãezinhos.
 
-**7. ** Leve ao forno para assar por 1 hora e 20 min. Retire do forno e deixe esfriar.
+**7.** Leve ao forno para assar por 1 hora e 20 min. Retire do forno e deixe esfriar.
 
 
 
